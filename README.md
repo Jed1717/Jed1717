@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Jed1717
+- 👀 I’m interested in Game devolpment, Web development, Python Coding, Some other fun stuff!
+- 🌱 I’m currently learning to code with some other languages!
+- 💞️ I’m looking to collaborate on anything!
+- 📫 How to reach me: idk
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I like playing Geometry Dash! (its my favorite game)
